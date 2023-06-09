@@ -1,4 +1,4 @@
-Where is CoastQuarry corporate headquarters? We are headquartered at 32, rue Mathias Goergen L - 8028 Strassen, Luxembourg
+Where is Regioncoast corporate headquarters? We are headquartered at Sondanella 104  - 7545 Guarda, Switzerland.
 
 Where is the company incorporated? The company is incorporated in Switzerland.
 
@@ -6,7 +6,7 @@ When did Regioncoast go public? What was the price? The company went public on O
 
 What is Regioncoast’s fiscal year? The company’s fiscal year ends on December 31.
 
-How is Regioncoast’s stock traded? Regioncoast trades on The Nasdaq Global Market exchange under the symbol CQ.
+How is Regioncoast’s stock traded? Regioncoast trades on The Nasdaq Global Market exchange under the symbol RC.
 
 Does Regioncoast pay dividends? We have never paid any cash dividends on our Class A common stock. Our future dividend policy is within the discretion of our board of directors and will depend upon then-existing conditions, including our results of operations, financial condition, leverage or other financial ratios, capital requirements, investment opportunities, statutory restrictions on our ability to pay dividends and other factors our board of directors may deem relevant. Our ability to pay cash dividends may also be restricted by the terms of any future credit agreement or any future debt or preferred equity securities that we or our subsidiaries may issue.
 
